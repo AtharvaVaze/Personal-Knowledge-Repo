@@ -1,0 +1,1 @@
+The answers I seek lie within me. How do I know? I don't. But I think it is so.
